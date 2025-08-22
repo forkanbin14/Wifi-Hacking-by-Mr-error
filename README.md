@@ -68,7 +68,7 @@ No Need To Ask Wifi Password, HACK it..! This Cyber Security Tool, Will Hack For
 
 ## Creator
 
-(Ankit Kanojiya) Hey, Dont Forget To say Thanks me :smile:
+ Hey,My name is Mr Error, Dont Forget To say Thanks me :smile:
 
 
 # SCREENSHOT
